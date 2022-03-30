@@ -1,5 +1,5 @@
-#Elena Zolotukhina
-##Contacts:
-[VK](https://vk.com/beauti_smile)
-[email](elanzo@mail.ru)
+#Elena Zolotukhina\
+##Contacts:\
+[VK](https://vk.com/beauti_smile)\
+[email](elanzo@mail.ru)\
 #About myself
