@@ -6,7 +6,7 @@
 
 [VK](https://vk.com/beauti_smile)
 
-[email-почта](elanzo@mail.ru)
+[email](elanzo@mail.ru)
 
 
 
