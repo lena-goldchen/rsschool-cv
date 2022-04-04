@@ -1,1 +1,1 @@
-https://lena-goldchen.github.io/rsschool-cv/
+https://lena-goldchen.github.io/rsschool-cv/cv
